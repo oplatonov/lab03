@@ -1,0 +1,6 @@
+![result](https://github.com/techbuterbrod/lab03/blob/master/ScreenShots/Screenshot_1637183218.png)
+![result](https://github.com/techbuterbrod/lab03/blob/master/ScreenShots/Screenshot_1637183239.png)
+![result](https://github.com/techbuterbrod/lab03/blob/master/ScreenShots/Screenshot_1637183242.png)
+![result](https://github.com/techbuterbrod/lab03/blob/master/ScreenShots/Screenshot_1637183250.png)
+![result](https://github.com/techbuterbrod/lab03/blob/master/ScreenShots/Screenshot_1637183261.png)
+![result](https://github.com/techbuterbrod/lab03/blob/master/ScreenShots/Screenshot_1637183305.png)
